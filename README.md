@@ -1,1 +1,1 @@
-# sco-o
+# sci-mi
